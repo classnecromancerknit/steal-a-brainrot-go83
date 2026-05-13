@@ -1,4 +1,4 @@
-#  
+#  vip Script for steal a brainrot offers the most advanced steal a brainrot Script, with god mode and undetectable. Perfect for dominating any match.
 
 
 
